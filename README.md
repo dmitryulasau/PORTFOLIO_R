@@ -1,3 +1,0 @@
-# Dmitry Ulasau
-
-# Portfolio
